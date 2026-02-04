@@ -1,4 +1,4 @@
-# Hi, I'm Mariano Belinky 👋
+# Hi, I'm Jonathan Rhyne 👋
 
 📍 **Global / Farm Life** | 🚜 **Investor & Operator (Retired)** | 🤖 **Tinkering with Robotics & Open Source**
 
